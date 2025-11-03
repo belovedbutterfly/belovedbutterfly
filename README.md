@@ -12,7 +12,7 @@
  
  read sp before int pls 
 
-꒰ঌ <a href="https://rentry.co/sadsero">rentry</a> ໒꒱
+꒰ঌ <a href="https://guns.lol/serochan">🦋</a> ໒꒱
  
  <img width="10%" src="https://i.postimg.cc/YSSW3Dt3/IMG-1612.jpg"> 
 <br>
