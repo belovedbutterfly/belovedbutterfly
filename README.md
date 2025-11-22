@@ -3,7 +3,7 @@
  ─── ⋆⋅☆⋅⋆ ───          
 ʚɞ *did you want to catch that butterfly?* ʚɞ
  
-<img width="40%" src="https://i.postimg.cc/zGqbBY6D/IMG-2376.jpg"> 
+<img width="45%" src="https://i.postimg.cc/zGqbBY6D/IMG-2376.jpg"> 
 
 ∘₊✧──────✧₊∘₊˚ʚ ʚɞ₊˚✧ ﾟ.
  <br>
