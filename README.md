@@ -7,6 +7,8 @@
 
 ∘₊✧──────✧₊∘₊˚ʚ ʚɞ₊˚✧ ﾟ.
  <br>
+
+main : <a href="https://github.com/sadser0">sadsero</a>
  
  fujogirl who loves to cuck her oomfs 🫶
  
