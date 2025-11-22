@@ -3,7 +3,7 @@
  ─── ⋆⋅☆⋅⋆ ───          
 ʚɞ *did you want to catch that butterfly?* ʚɞ
  
-<img width="50%" src="https://i.postimg.cc/jjRWjgD3/IMG-2728.jpg"> 
+<img width="40%" src="https://i.postimg.cc/zGqbBY6D/IMG-2376.jpg"> 
 
 ∘₊✧──────✧₊∘₊˚ʚ ʚɞ₊˚✧ ﾟ.
  <br>
@@ -14,7 +14,7 @@
 
 ꒰ঌ <a href="https://guns.lol/serochan">🦋</a> ໒꒱
  
- <img width="10%" src="https://i.postimg.cc/YSSW3Dt3/IMG-1612.jpg"> 
+ 
 <br>
 
 
