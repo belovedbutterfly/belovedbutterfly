@@ -10,9 +10,7 @@
 
  <a href="https://github.com/sadser0">main</a>
  
- fujogirl who loves to cuck her oomfs 🫶
- 
- read sp before int pls 
+pls read sp before int 
 
 ꒰ঌ <a href="https://guns.lol/serochan">🦋</a> ໒꒱
  
